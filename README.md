@@ -1,1 +1,0 @@
-# daedalecy.github.io
